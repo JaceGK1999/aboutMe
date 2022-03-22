@@ -11,5 +11,5 @@ I have worked with a diverse group of people in a couple different work environm
 My projects -
 https://github.com/theGiggleBox/theGiggleBox
 
-My GitHub - https://github.com/JaceGK1999
+My linkedIn - https://www.linkedin.com/in/jace-keyes-83190322b/
 Please contact me at JaceGK1999@gmail.com
