@@ -12,5 +12,5 @@ I have been able to lead multiple different teams to success in kitchens and cur
 My projects -
 https://github.com/theGiggleBox/theGiggleBox
 
-My linkedIn - https://www.linkedin.com/in/jace-keyes-83190322b/
+My linkedIn - www.linkedin.com/in/JaceGKeyes
 Please contact me at JaceGK1999@gmail.com
